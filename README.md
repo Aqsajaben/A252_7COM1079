@@ -6,7 +6,7 @@ Aqsa Jabeen
 
 Umair
 
-]Muhammad Farooq
+Muhammad Farooq
 
 Abrar
 
